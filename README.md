@@ -6,8 +6,8 @@
 - 😊The goal is have an exciting job and to work on projects with emmployees from a variety of backgrounds!
 - 📫 How to reach me: contact.abdallahkarimi@gmail.com
 
-<br><br>
 
+<br><br>
 More about ARINFO : https://arinfo.fr
 More about me : https://fr.linkedin.com
 <br><br>
